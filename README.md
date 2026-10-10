@@ -1,5 +1,5 @@
 # 💫 About Me:
-📑Hy uhm call me Kris or san <br>🔭 I'm an IT student <br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+📑Hy uhm call me Kris or San <br>🔭 I'm an IT student <br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
 
 
 ## 🌐 Socials:
